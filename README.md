@@ -73,5 +73,4 @@
 		<img src="https://i.pixxxels.cc/j5SW5thy/Coser-yixiaoyangze-MISS-SPIDER-063.jpg"/>
 		<img src="https://i.pixxxels.cc/Z5zCNrcb/Coser-yixiaoyangze-MISS-SPIDER-064.jpg"/>
 		<img src="https://i.pixxxels.cc/L8kh3nCz/Coser-yixiaoyangze-MISS-SPIDER-065.jpg"/>
-		<img src="https://i.loli.net/2020/06/13/PaZDhse3pEOTFX7.gif" />
 		</a></blockquote></div>
