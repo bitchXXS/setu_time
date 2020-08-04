@@ -6,7 +6,7 @@
 <div align="center"><p><a href="https://qm.qq.com/cgi-bin/qm/qr?k=VHVfncJChRrSp_NGJrlJNgYpoaZ9ukMV
 " rel="nofollow">点我添加QQ</a>&nbsp&nbsp&nbsp | &nbsp&nbsp;<a href="https://mp.qzone.qq.com/u/51301105?uin=51301105&is_famous_space=1&brand_flag=0
 " rel="nofollow">访问QQ空间</a><br/><br><a href="https://sharechain.qq.com/64af2d17d969dc099327f1cd8f9dbe53
-">福利软件合集</a> &nbsp&nbsp&nbsp&nbsp|&nbsp&nbsp;&nbsp<a href="https://github.com/Aomul/nai-nai/blob/master/%E5%BE%80%E4%B8%8B%E6%BB%91%E7%9C%8B%E5%BE%80%E6%9C%9F%E6%89%80%E6%9C%89%E5%90%88%E9%9B%86.md">查看往期合集</a></p></div>
+">福利软件合集</a> &nbsp&nbsp&nbsp|&nbsp&nbsp;&nbsp<a href="https://github.com/Aomul/nai-nai/blob/master/%E5%BE%80%E4%B8%8B%E6%BB%91%E7%9C%8B%E5%BE%80%E6%9C%9F%E6%89%80%E6%9C%89%E5%90%88%E9%9B%86.md">查看往期合集</a></p></div>
 <div align="center"<a href="" target="_blank">
 		<img src="https://i.pixxxels.cc/G2K2wVw9/Coser-yixiaoyangze-MISS-SPIDER-001.jpg" />
 		<img src="https://i.pixxxels.cc/G2K2wVw9/Coser-yixiaoyangze-MISS-SPIDER-002.jpg" />
