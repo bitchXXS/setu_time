@@ -1,4 +1,3 @@
-# setu_time
 <h1>涩图time! No.1</h1>
 <blockquote>
 <p><strong>一个儒雅随和的涩图姬，日常在QQ空间评论区ghs(干好事)，欢迎添加我的QQ。</br>更新号：51301105&nbsp&nbsp</br>主号：6063021&nbsp&nbsp</br>真人篇更新号：45503880&nbsp&nbsp</br>备用号77511622。</strong></p>
